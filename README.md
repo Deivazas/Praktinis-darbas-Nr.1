@@ -1,1 +1,0 @@
-# Praktinis-darbas-Nr.1
